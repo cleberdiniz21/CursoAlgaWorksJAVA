@@ -1,4 +1,4 @@
-![JAVA](http://turmaprogramacaomatutino.blogspot.com/2016/04/java-uma-linguagem-de-programacao.html)
+![JAVA](http://www.canalgif.net/Gifs-animados/Informatica/Java/Imagen-animada-Java-03.gif)
 
 # CURSO_DE_JAVA
 
